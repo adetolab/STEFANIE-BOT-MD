@@ -1,20 +1,22 @@
-### Stefanie
+### de adetolab
 
-### Multi Device  [ ❑ 𝗩𝗜𝗣 𝗩𝗘𝗥𝗦𝗜𝗢𝗡 ❑ ]  Unlimited Version (24 hors Activation )
-
-
-
-<img src="https://telegra.ph/file/0edc0f3917fde20a7990a.jpg" alt="nz" width="350"/>
-</p>
+### have fun
 
 
-> [Automated Multi Device whatsapp bot created](https://github.com/whiteshadowofficial) by [Mr.White Shadow](https://github.com/whiteshadowofficial)
 
+
+
+
+> ▂▄▄▓▄▄▂
+◢◤█▀████▄▄▄▄▄▄◢◤
+█🐤█▀▀▀▀▀▀╬✨
+◥█████◤
+══╩══╩══✨
 ----
-Setup bot in sinhala lanuage...👇
-
-https://github.com/whiteshadowofficial/Stefanie-Setup
-
+## Connect with me
+____
+<br>
+> <a href="http://wa.me/+2348134712132?text=adetolab bot 🐤 /><br>
  <b><h1>Scan Qr Code.</b></h1>
  
 
@@ -70,7 +72,7 @@ Base, Bug Fixes, Modules | Modifiying  as   public | Bug Fixes, Modules
 >`WhatsApp` name, its variations and the logo are registered trademarks of Facebook. We have nothing to do with the registered trademark
 .
 
-> The project was created by Mr.White Shadow
+> The project was created by dee
 
 ____________________________________________
 
